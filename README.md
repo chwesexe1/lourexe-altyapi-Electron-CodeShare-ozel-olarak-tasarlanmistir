@@ -1,1 +1,1 @@
-# lourexe-altyapi-Electron-CodeShare-ozel-olarak-tasarlanmistir
+YouTube Kanalında Paylaşılırsa Telif Atılır!!!
